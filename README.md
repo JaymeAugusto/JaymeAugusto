@@ -5,4 +5,4 @@ Estou começando no **GitHub** e pretendo colocar diversos projetos meus aqui pa
 ### Seja Bem Vindo ao meu Perfil
 
 * Me siga no [**Instagram**](https://www.instagram.com/jayme_august/)
-* No [**Facebook**](https://www.facebook.com/jaymeaugustoOficial/)
+* E também no [**Facebook**](https://www.facebook.com/jaymeaugustoOficial/)
